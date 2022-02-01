@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @GitoMez
+- Server EU 3/9
